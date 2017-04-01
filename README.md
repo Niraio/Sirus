@@ -1,2 +1,3 @@
 # Sirus
 An Osu! Discord Server For Hosting Tourments And Battles
+Well its a server where i thought i may remove the boring time's from me....the idea came to me when i was Watching a tourment in the twitch ...... so i want to have tourments that are for fun.....Well mybe you will ask yourself WHAT I WILL GET?..Nothing.... but playing tourments front of the mods and winning alot...that time we can put ur name in a real strong tourment list...i want to find people that are expert after that if they want to play a tourment .... we can do one that is Really STRONG... even i did some rooms for 1v1 ..i hope every one joines and every one have fun!.....
